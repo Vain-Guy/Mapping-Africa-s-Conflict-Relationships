@@ -1,1 +1,1 @@
-# Mapping-Africa-s-Conflict-Relationships
+# Mapping Africa's Conflict Relationships
